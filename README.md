@@ -5,7 +5,7 @@
 
 ## 人文系列
 
-- [独立人格从何而来？ - 2020/06/21](blog-2020-06-21- independent-personality.md)
+- [独立人格从何而来？ - 2020/06/21](blog-2020-06-21-independent-personality.md)
 - [好读书的富兰克林 - 2020/07/31](blog-2020-07-31-franklin.md)
 
 
