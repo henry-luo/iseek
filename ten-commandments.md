@@ -67,3 +67,9 @@
     - 悖逆、亵渎神，就是三重的忘恩负义！（不孝不忠、不仁不义）
 - 玛拉基书1:6 万军之耶和华对你们说，儿子尊敬父亲，仆人敬畏主人。我既为父亲，尊敬我的在哪里呢？我既为主人，敬畏我的在哪里呢？"A son honors his father, and a servant  his master. If I am a father, where is the honor due me? If I am a  master, where is the respect due me?" says the LORD Almighty. (NIV)
 
+
+
+### 讨论
+
+- 人要尊容父母与人要离开父母并不矛盾；
+
